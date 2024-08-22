@@ -4,6 +4,6 @@ Hi, I’m @IqraShafique786!
 💞️ I’m looking to collaborate on projects that blend creativity with functionality.
 📫 You can reach me at [iqrashafique778899@gmail.com].
 😄 
-⚡  I have a background in Bioinformatics, so I love bringing a data-driven approach to web development!
+⚡  I have a background in BS Bioinformatics, so I love bringing a data-driven approach to web development!
 
 
